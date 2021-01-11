@@ -1,4 +1,4 @@
-# Osu-Skin-Archive
+# Alex's Skin Archive
 fat jiggly nutsack ooooooooooooooo
 
 # ᚖBloo v1.1ᚖ 
